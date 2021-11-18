@@ -33,3 +33,5 @@ Kfirjr
 Ifiu
 Ueuueu
 Ieieiei
+Hshshs
+Oseie
