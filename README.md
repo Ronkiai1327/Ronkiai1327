@@ -45,3 +45,5 @@ Oddood
 Pwou
 Jdhdhd
 Paksk
+Odkrk
+Powie
