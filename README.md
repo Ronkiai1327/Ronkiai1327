@@ -71,3 +71,5 @@ O3keke
 Oek3je
 Kjejej
 Heiuesj
+Kwkkeje
+Oekje
