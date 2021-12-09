@@ -73,3 +73,5 @@ Kjejej
 Heiuesj
 Kwkkeje
 Oekje
+Kwjwiwi
+Ksndhduw
