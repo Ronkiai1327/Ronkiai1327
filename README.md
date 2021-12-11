@@ -77,3 +77,5 @@ Kwkkeje
 Oekje
 Kwjwiwi
 Ksndhduw
+Jdjr
+Idjdid
