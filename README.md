@@ -82,6 +82,8 @@ Idjdid
 Ieieiie
 Ncjdiej
 Ieieiwjwj
+Jrkrir
+Jejej
 Mxbdiuws
 Kcjxksk
 Dihdiwu
