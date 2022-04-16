@@ -324,3 +324,5 @@ Nfir
 Ndjdi
 Fkkf
 Cnkdkd
+Ltltk
+Mfkkf
