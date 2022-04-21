@@ -334,3 +334,5 @@ Kfktir
 Fkkkf
 Kvog
 Vkkkf
+Ktog
+Gkgkkg
