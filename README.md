@@ -389,3 +389,5 @@ Idir
 Cmdn
 Keke
 Mke
+Mkd
+Fnfnd
