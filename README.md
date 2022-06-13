@@ -435,3 +435,5 @@ Ktkr
 Fmf
 Meke
 Kfktkr
+Krjr
+Mejr
