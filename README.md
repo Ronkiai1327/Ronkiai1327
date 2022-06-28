@@ -463,3 +463,5 @@ Rkkrk
 Rnrn
 Kekeoe
 Ene
+Fidi
+Dn
