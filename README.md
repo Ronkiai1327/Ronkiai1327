@@ -471,3 +471,5 @@ Kdkeoe
 Keke
 Kdkd
 Dmek
+Krkr
+Ekke
