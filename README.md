@@ -481,3 +481,5 @@ Ktktktot
 Rmkr
 Dkkdkekelw
 Ndmskuwuw
+Lrlrle
+Rkrk
